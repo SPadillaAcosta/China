@@ -1,1 +1,1 @@
-This is the website that would be banned in China.
+China ain't got anything on me :)
